@@ -1,0 +1,2 @@
+# BRICS-AND-ITS-IMPACT-ON-GLOBAL-TRADE-AND-INDIAN-ECONOMY
+BRICS (Brazil, Russia, India, China, South Africa) pushes de-dollarization, boosts intra-bloc trade, and challenges Western-led institutions. For India, it offers cheaper energy from Russia, expanded export markets, New Development Bank funding, and stronger South-South ties—while balancing rivalry with China and Western trade partnerships.
